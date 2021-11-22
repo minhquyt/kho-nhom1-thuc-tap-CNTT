@@ -1,1 +1,1 @@
-# kho-nhom7-thuc-tap-CNTT
+# kho-nhom1-thuc-tap-CNTT
